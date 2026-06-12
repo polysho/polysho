@@ -55,7 +55,7 @@
   <a 
 
 
-$${\color{white}Color \}$$ <img src="https://media1.tenor.com/m/879zH1pItwQAAAAd/mr-showtime-tenma-tsukasa.gif" width="500" height="270"/>)
+<img src="https://media1.tenor.com/m/879zH1pItwQAAAAd/mr-showtime-tenma-tsukasa.gif" width="500" height="270"/>!
 
 <p align="center">
   <a 
