@@ -2,20 +2,20 @@
   <a 
     
 
-<sup>"　this　is　how　i　write　the　reckless　,　amusing　legend　,　"</sup>
+<sup>"　nice　to　meet　you　,　i'll　be　in　your　care　,　and　shall　we　dance　?　"</sup> 
 
 <p align="center">
   <a 
 
 
-![Logo](https://media1.tenor.com/m/QKI3d6nWS48AAAAd/tsukasa-tenma-tsukasa.gif)
+<img src="https://media1.tenor.com/m/QBuSYEpocnoAAAAd/wonderlands-x-showtime-wxs.gif" width="500" height="270"/>!
 
 
 <p align="center">
   <a 
     
 
-<sup>"　mr　showtime　.　"</sup>
+<sup>"　a　toast　at　the　party　!!　"</sup>
 
 
 
@@ -55,12 +55,12 @@
   <a 
 
 
-<img src="https://media1.tenor.com/m/879zH1pItwQAAAAd/mr-showtime-tenma-tsukasa.gif" width="500" height="270"/>!
+<img src="https://media1.tenor.com/m/QR7xBknko18AAAAd/wonderlands-x-showtime-tsukasa-tenma.gif" width="500" height="270"/>!
 
 <p align="center">
   <a 
 
-<sup>"　let's　gather　chaotic　people　,　and　reach　for　the　stars　!　"</sup>
+<sup>"　so　please　,　smile　now　,　on　that　stage　!　"</sup>
 
 
 <p align="center">
