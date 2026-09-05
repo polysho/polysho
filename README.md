@@ -2,20 +2,20 @@
   <a 
     
 
-<sup>"　nice　to　meet　you　,　i'll　be　in　your　care　,　and　shall　we　dance　?　"</sup> 
+<sup>"　i　wonder　why　i'm　smiling　,　even　though　i've　noticed　that　,　"</sup> 
 
 <p align="center">
   <a 
 
 
-<img src="https://media1.tenor.com/m/QBuSYEpocnoAAAAd/wonderlands-x-showtime-wxs.gif" width="500" height="270"/>!
+<img src="https://media1.tenor.com/m/LMoK4JyZLTMAAAAC/pjsk-proseka.gif" width="500" height="270"/>!
 
 
 <p align="center">
   <a 
     
 
-<sup>"　a　toast　at　the　party　!!　"</sup>
+<sup>"　i　couldn't　write　down　even　one　of　these　feelings　that　i　want　to　say　.　"</sup>
 
 
 
@@ -55,19 +55,19 @@
   <a 
 
 
-<img src="https://media1.tenor.com/m/QR7xBknko18AAAAd/wonderlands-x-showtime-tsukasa-tenma.gif" width="500" height="270"/>!
+<img src="https://media1.tenor.com/m/ywtF7XU8q6UAAAAd/teratera-leoneed.gif" width="500" height="270"/>!
 
 <p align="center">
   <a 
 
-<sup>"　so　please　,　smile　now　,　on　that　stage　!　"</sup>
+<sup>"　can　you　hear　it　?　this　voice　of　mine　.　"</sup>
 
 
 <p align="center">
   <a 
 
 
-![](https://komarev.com/ghpvc/?username=polysho&label=　🌟stars　&abbreviated=true&color=ffbb00&style=plastic)
+![](https://komarev.com/ghpvc/?username=polysho&label=　🎸stars　&abbreviated=true&color=33AAEE&style=plastic)
 
 <p align="center">
   <a 
